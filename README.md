@@ -1,1 +1,0 @@
-# regalia.github.io
